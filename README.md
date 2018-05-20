@@ -1,2 +1,2 @@
 # Movie-News-Bot
-asithaindrajithk9@gmail.com Asitha Indrajith AsithaIndrajith IA4
+asithaindrajithk9@gmail.com Asitha Indrajith AsithaIndrajith IA4.
